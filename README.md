@@ -1,5 +1,5 @@
 # Buenas! Mi nombre es Pilar
-### *Bueno, en realidad me llamo María del Pilar pero quedemonos con Pilar*
+### *Bueno, en realidad me llamo María del Pilar pero quedémonos con Pilar*
 
 ***
 
