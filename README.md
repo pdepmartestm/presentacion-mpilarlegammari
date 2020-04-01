@@ -18,6 +18,8 @@ No estoy trabajando actualmente :(
 
 En mi tiempo libre me gusta mirar series, leer y estoy tratando de incursionar en el mundo Rubik así que estoy todo el dia armando y desarmando cubos, pero categoría hiper junior todavía. Ah y también me gusta estudiar, *y bastante*. Por lo que para mis amigxs entro en la categoría **nerd**.
 
+Y antes que me olvide, soy **adicta al mate**.
+
 Por lástima me llevó tiempo hacer esta presentación porque esta *cuarentena* me agarró visitando a mi familia en Santiago del Estero así que estoy luchando contra la computadora de mi abuelo que, podrán imaginar, no es la más adecuada. Y bueno, varada acá hasta próximo aviso.
 
 Por si quieren seguir chusmeando, este es mi 
